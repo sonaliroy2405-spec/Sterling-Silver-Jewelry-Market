@@ -1,1 +1,0 @@
-# Sterling-Silver-Jewelry-Market
